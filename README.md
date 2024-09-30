@@ -1,5 +1,5 @@
 ## thais lorena ##
-olá, meu nome é thais lorena e estou começando a aprender na área de progamação
+olá, meu nome é thais lorena e estou começando a aprender algo na área de progamação,
 meus interesses não são dessa área mas é interessante e muito caro, e provavelmente isso sim dá um futuro 
 
 <!---
