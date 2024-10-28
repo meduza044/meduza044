@@ -7,3 +7,6 @@ meus interesses não são dessa área,meus interesses são: música (especialmen
 thais.lorena.andrade@escola.pr.gov.br 
 instagram: _Meduza_044
 
+
+
+![](https://media1.tenor.com/m/gxF2wutqCdsAAAAC/cat-cute.gif)
